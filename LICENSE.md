@@ -1,4 +1,4 @@
-
+Experience be a lucky block like never before with be a lucky block custom Script, the #1 Script. Includes silent aim and god mode for unbeatable
 
 
 
